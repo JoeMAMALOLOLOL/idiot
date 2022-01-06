@@ -1,0 +1,2 @@
+# idiot
+ur an idiot
